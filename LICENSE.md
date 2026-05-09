@@ -1,4 +1,4 @@
-
+Experience adopt me like never before with adopt me Script professional, the #1 Script. Includes aimbot and auto-heal for unbeatable performance.
 
 
 
